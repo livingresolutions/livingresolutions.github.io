@@ -1,0 +1,1 @@
+# livingresolutions.github.io
